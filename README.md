@@ -8,7 +8,3 @@
 🤝 我正在寻找[万花筒文件]（https://github.com/Kaf-Genzitu/Kaleido-Files）
 
 的帮助- 📫 如何联系我**2274483211@qq.com**
-
-<h3 align=“left”>联系我：</h3>
-<p align=“left”>
-</p>
